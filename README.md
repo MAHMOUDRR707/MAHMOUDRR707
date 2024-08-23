@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **redamahmoud722@gmail.com**
 
-- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1bBD5hi1Z_eYy7PagjrNyUMxURCTKW81f/view?usp=drive_link)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1bBD5hi1Z_eYy7PagjrNyUMxURCTKW81f/view?usp=sharing)
 
 - ⚡ Fun fact **Nothing fun everything is possible**
 
